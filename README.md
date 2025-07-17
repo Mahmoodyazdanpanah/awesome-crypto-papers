@@ -10,7 +10,7 @@ Media activist, advocate of justice and transparency.
 
 🌱 Official Channels:
 - Telegram: [Haq News](https://t.me/HaqNewsBoyerahmad)
-- WhatsApp: [Direct Contact](https://wa.me/989123456789) *(sample)*
+- WhatsApp: [https://whatsapp.com/channel/0029Vb5svI417EmzzirF1D2z ](https://wa.me/989171412840) *(https://whatsapp.com/channel/0029Vb5svI417EmzzirF1D2z)*
 - Website: *(To be added if needed)*
 
 🟢 **Note:**
@@ -26,7 +26,8 @@ This page and all its contents belong to Haq News Team and are exclusively used 
 
 🌱 کانال‌های رسمی:
 - تلگرام: [حق‌نیوز](https://t.me/HaqNewsBoyerahmad)
-- واتساپ: [ارتباط مستقیم](https://wa.me/989123456789) *(نمونه)*
+- واتساپ: [https://whatsapp.com/channel/0029Vb5svI417EmzzirF1D2z]
+(+989171412840) *()*
 - وب‌سایت: *(در صورت تمایل درج می‌شود)*
 
 🟢 **یادآوری مهم**:
